@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about OOPs
 - 📫 How to reach me: email: msaisharma9@gmail.com
 - 😄 Pronouns: ... him
-- ⚡ Fun fact: ... Rhyming is the timinig.
+- ⚡ Fun fact: ... Learn before you earn.
 
